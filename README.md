@@ -1,0 +1,2 @@
+# -N-TIN-H-C-NH-M-1
+STU TRẦN ĐỨC MINH
